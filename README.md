@@ -1,4 +1,4 @@
-projectm00n
+projectSPACE
 
 The story of the creation of Future AI technology
 
