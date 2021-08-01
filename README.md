@@ -11,4 +11,4 @@ Where the AI (artificial intelligence) part comes in and what makes it safe and 
 What makes projectm00n possible?
 We must acknowledge that the rate at with technology is advancing is absurd, it's almost incomprehensible. This makes it a quite interesting time for us all. Where technology and access to the web is extremely easy for almost anyone. Even toddlers are picking up and learning technology quicker than ever before. It's almost if time itself has slowed down... or are we just progressing faster than before? With the wild pandemic -that the discovery of COVID-19 has caused across the world- I believe that many people have gained many different experiences and "woken up" as some would call it. One belief I hold true, is that technology was created and is being created for our benefit. If we view technology as an extension of ones 'self' and as a benefit to each of our personal life pursuits. We can see that the implementation and influence of technology is enormous. Knowledge spread across the web is only increasing.
 
-This is made possible thanks to all ❤️🧡💛💚💙💜🖤🤍🤎❤️
+This is made possible thanks to all who use the web :)
